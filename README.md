@@ -1,0 +1,1 @@
+Dark Side, also known as Achmaday, is the leader of Hex Team. With over 7 years of experience as an ethical hacker, developer, and graphic designer, they bring a wealth of expertise in cybersecurity, software development, and creative design. Connect with them on Instagram: [@Hex.Achmaday](https://www.instagram.com/Hex.Achmaday).
